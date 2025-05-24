@@ -16,5 +16,5 @@ Let's build something meaningful together!
 
 ---
 
-🔗 **Stay tuned for our upcoming website and join our community soon!**
+🔗 **Stay tuned at [Rollercoaster.dev](https://rollercoaster.dev) and join our community soon!**
 
